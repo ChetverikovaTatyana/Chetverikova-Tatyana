@@ -15,7 +15,7 @@ Email: Mishel2208@ya.ru
 
 Telegram: @arlajosm
 
-Резюме:
+Резюме: https://belgorod.hh.ru/resume/b268988cff0f094d270039ed1f69376745344a
 
 #### Мой стек 
 
