@@ -11,7 +11,7 @@
 
  **Контакты**
 
-Email: Mishel2208@ya.ru
+Email: Chetverikova2208@gmail.com
 
 Telegram: @arlajosm
 
